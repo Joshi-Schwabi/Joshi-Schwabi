@@ -2,7 +2,7 @@
 - 👀 I’m interested in engineering
 - 🌱 I’m currently learning mechatronics
 - 💞️ I’m looking to collaborate with konsti, mada and lindna
-- 📫 You can only reach my via fax
+- 📫 You can only reach me via fax
 - 😄 Pronouns: wos für pronouns oida?
 - ⚡ Fun fact: ...
 
